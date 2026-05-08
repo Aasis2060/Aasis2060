@@ -23,8 +23,8 @@
 * Networking Troubleshooting Projects
 
 ## 📜 Certifications
-
-* Google Cybersecurity Certificate
+[Cybersecurity Internship Certificate]
+(https://www.credential.net/2ff1b2d6-2548-486d-a4db-fdaac07eb18a)
 
 ## 📫 Connect With Me
 
